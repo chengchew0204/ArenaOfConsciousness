@@ -1,5 +1,4 @@
 # Arena of Consciousness  
-**Artistic & Philosophical Project Proposal**
 
 ---
 
